@@ -2,20 +2,22 @@
 
 ###What is your name?
 
-Your answer goes here
+Elizabeth Hammond
+
+
 
 ###What is your favorite color?
 
-Your answer goes here
+Periwinkle Blue
 
 ###Cats or Dogs?
 
-Your answer goes here
+Dogs of course :-)
 
 ###What would constitute a “perfect” day for you?
 
-Your answer goes here
+It would involve a long run, hong tubs, massage, dinner out
 
 ###Given the choice of anyone in the world, whom would you want as a dinner guest?
 
-Your answer goes here
+Lucinda Lee Dalton
