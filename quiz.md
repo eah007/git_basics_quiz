@@ -12,12 +12,12 @@ Periwinkle Blue
 
 ###Cats or Dogs?
 
-Dogs of course :-)
+Dogs of course :-) (I have a puli, and they say "It's not a dog, its a puli", but most people would think of him as a dog)
 
 ###What would constitute a “perfect” day for you?
 
-It would involve a long run, hong tubs, massage, dinner out
+It would involve a long run, hot tubs, massage, dinner out
 
 ###Given the choice of anyone in the world, whom would you want as a dinner guest?
 
-Lucinda Lee Dalton
+Obama
